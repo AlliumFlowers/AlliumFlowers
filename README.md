@@ -1,1 +1,1 @@
-I like boys 👉👈
+Haiiiiiiiiiiiiiiiiiiiiiiiiiiiii, I'm Allium.. I'm your stereotypical trans girl who codes shits and plays video games. Here you can find my funky shitty coding projects where i kinda just fuck around and find out.
